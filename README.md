@@ -4,4 +4,4 @@ HELLO... I'm Benny! Or Feli, Whatever you prefer! <img src=https://i.postimg.cc/
 
 <img src=https://i.postimg.cc/2yj0VfWS/jib0pr.png>
 
-<img src=https://i.pinimg.com/originals/48/df/0c/48df0cdc570cb9894e484c3acdab8d87.gif> <img src=https://i.pinimg.com/originals/fe/28/18/fe281851143188c73ee51405721c05f6.gif>
+<img src=https://i.pinimg.com/originals/48/df/0c/48df0cdc570cb9894e484c3acdab8d87.gif>
