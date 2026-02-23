@@ -8,6 +8,7 @@
 ‎ <p style="text-align:center;">⠀⠀⠀⠀⠀⠀⠀⠀_ _　　　◟⌣　﹒　https://felineciano.straw.page</p>
   </head>
 <body>
+  <a href="https://tamanotchi.world/16514c"><img src="https://tamanotchi.world/i/16514" alt="It's tamaNOTchi! Click to feed!"></a>
   <div class="container">⠀⠀⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀⠀
 ⠀⠀⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀<img src="https://image2url.com/r2/default/gifs/1771321154733-e278ca29-dd63-4468-8dc3-3c51add0c9da.gif" class="center">
   </div>
