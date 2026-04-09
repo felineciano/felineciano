@@ -1,6 +1,6 @@
 <html>
   <head>
-    ☆    ݂     <p style="text-align➡️;">/felineciano</p>
+    ☆    ݂     <center><p>/felineciano</p></center>
     ﹚ㅤ.ㅤ    
   ‎ <p style="text-align:center;">⠀⠀⠀⠀e 　˳⠀⠀Benny⠀ノ⠀feli .　 ᛝ  𝄞</p>
 <p style="text-align:center;">⠀⠀⠀⠀⠀⠀⠀⠀⠀c+h freely ఎ 　　⏜ 　 𓈒 w2i unless with friends⠀⠀♰　𓏼　17𓈒</p>
