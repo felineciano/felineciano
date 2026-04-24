@@ -1,15 +1,4 @@
 <html>
-  <head>
-    ☆    ݂     <center><p>/felineciano</p></center>
-    ﹚ㅤ.ㅤ    
-  ‎ <p style="text-align:center;">⠀⠀⠀⠀e 　˳⠀⠀Benny⠀ノ⠀feli .　 ᛝ  𝄞</p>
-<p style="text-align:center;">⠀⠀⠀⠀⠀⠀⠀⠀⠀c+h freely ఎ 　　⏜ 　 𓈒 w2i unless with friends⠀⠀♰　𓏼　17𓈒</p>
-    <img src="https://64.media.tumblr.com/5b7d9a389428dc6ca60bad3ae0b70625/f4cf3be3a03a39af-6d/s250x400/17bc0079882791493d3dac22a69205ba333be6df.gif"> <a href="https://tamanotchi.world/30506c"><img src="https://tamanotchi.world/i2/30506" alt="It's tamaNOTchi! Click to feed!"></a>
-‎ <p style="text-align:center;">⠀⠀⠀⠀⠀⠀⠀⠀_ _　　　◟⌣　﹒　https://felineciano.straw.page</p>
-  </head>
-<body>
-  <div class="container">⠀⠀⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀⠀
+TOO lazy to make ts cute Sorry<br>Hi I'm Benny, Feli(ne)ciano, Solid Or whatever you prefer. I'm turning 18, I'm Intersex Bigender So please use all pronouns on me...<br>I'm incredibly sensitive, always iwec! I was pre-diagnosed with bpd at the age of 16, I may say things that are out of line So please tell me if i make you comfortable #communicationiskey<br><br>No dni just don't be weird<br>I Loaf All My friends! ^_^<br><br>
 ⠀⠀⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀<img src="https://image2url.com/r2/default/gifs/1771321154733-e278ca29-dd63-4468-8dc3-3c51add0c9da.gif" class="center">
-  </div>
-  </body>
 </html>
