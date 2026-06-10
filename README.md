@@ -1,13 +1,5 @@
 <html>
 <head>
-  <style>
-    .flex-container {
-  display: flex;
-  justify-content: center; 
-  align-items: center;
-  height: 300px;
-}
-  </style>
 </head>
   <body>
 <div class="flex-container">
